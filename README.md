@@ -1,0 +1,2 @@
+# Smk
+tekan aja amannn
